@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @AltyMulty
+- This is Alt Account, Im not even hiding it, email me for more info: electrolichplays@gmail.com
